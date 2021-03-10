@@ -1,6 +1,6 @@
 ### Final project
 
-Final project proposal due: 3/19/2021
+Final project proposal due: 3/22/2021
 
 Oral presentations scheduled: 4/12/2021 - 5/3/2021
 
